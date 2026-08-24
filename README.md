@@ -1,0 +1,17 @@
+<div align="center">
+  
+  ![](https://i.imgur.com/z14eXK4.png)
+ > $$ \color{#000000}{\huge \text{๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑}} $$ 
+<p align="center"> $$ \color{#000000}{\huge \text{𝓡𝓮𝓪𝓭 𝓢𝓸𝓬𝓲𝓪𝓵𝓼! }} $$ </p>
+
+![](https://files.catbox.moe/uah3md.gif)
+![](https://64.media.tumblr.com/111b1034bdd07d3bca7207577ef16e97/23bfe7b2b7b2e38f-12/s75x75_c1/4e8d08b1151ea8616ae9095dea7cf949e44a5964.gifv)
+
+<p align="center"> $$ \color{#000000}{\huge \text{𝓥𝓪𝓷𝓬𝓾𝓷𝓲𝓷 𝓸𝓻 𝓥𝓲𝓿𝓲 !}} $$ </p>
+<p align="center"> $$ \color{#000000}{\huge \text{ 𝓓𝓝𝓘 𝓾𝓷𝓭𝓮𝓻 16!}} $$ </p>
+
+
+
+![](https://i.imgur.com/Bu3HyGV.png)
+
+![](https://i.imgur.com/1liIltW.png7)
