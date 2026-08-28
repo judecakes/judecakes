@@ -1,5 +1,7 @@
 <div align="center">
-  
+
+ ![](https://komarev.com/ghpvc/?username=judecakes&color=000000&style=plastic&label=𝐉𝐁𝟓)
+ 
   ![](https://i.imgur.com/z14eXK4.png)
 
 ![](https://i.imgur.com/Bu3HyGV.png)
