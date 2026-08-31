@@ -9,7 +9,7 @@
  > $$ \color{#5C5A5A}{\huge \text{๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑‧˚₊꒷︶ଓ︶꒷꒦⊹๑}} $$ 
 <p align="center"> $$ \color{#5C5A5A}{\huge \text{𝓡𝓮𝓪𝓭 𝓢𝓸𝓬𝓲𝓪𝓵𝓼! }} $$ </p>
 
-<p align="center">⠀⠀<a href="https://belligoll.carrd.co/" target="_blank">𝓬𝓪𝓻𝓻𝓭</a> ⠀ ⠀⠀<a href="https://vivis.atabook.org/" target="_blank">𝓪𝓽𝓪𝓫𝓸𝓸𝓴</a>⠀⠀ ⠀⠀<a href="https://rentry.co/vvancunin/"">𝓻𝓮𝓷𝓽𝓻𝔂</a>  ⠀⠀⠀<a href="https://discord.com/users/840014721968635944" target="_blank">𝓭𝓲𝓼𝓬𝓸𝓻𝓭</a
+<p align="center">⠀⠀<a href="https://belligoll.carrd.co/" target="_blank">𝓬𝓪𝓻𝓻𝓭</a> ⠀ ⠀⠀<a href="https://jb5.atabook.org/" target="_blank">𝓪𝓽𝓪𝓫𝓸𝓸𝓴</a>⠀⠀ ⠀⠀<a href="https://rentry.co/vvancunin/"">𝓻𝓮𝓷𝓽𝓻𝔂</a>  ⠀⠀⠀<a href="https://discord.com/users/840014721968635944" target="_blank">𝓭𝓲𝓼𝓬𝓸𝓻𝓭</a
 
 
 <p align="center"> 
